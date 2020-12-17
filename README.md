@@ -1,1 +1,1 @@
-# ramjk-amrita
+# ramji-amrita
